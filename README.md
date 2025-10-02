@@ -1,1 +1,1 @@
-Hallo Guys
+LATIHAN 1 
